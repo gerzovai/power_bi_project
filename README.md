@@ -1,1 +1,1 @@
-# power_bi_project
+# POWER BI PROJECT  - IVANA GERŽOVÁ
